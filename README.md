@@ -1,0 +1,1 @@
+# A-Mathematical-Extension-of-the-Standard-Equation-for-Synthe--sized-Fog-Rendering
